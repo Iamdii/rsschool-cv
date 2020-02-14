@@ -13,6 +13,7 @@
  # Summary:
 
  Building  easy to use, responsible websites and applications is a passion of mine. In addition to my knowledge base, I actively seek out new technologies and stay up-to-date on industry trends and advancements.  
+ I'm confident that I possess all required experience, knowledge, and skills to successfully fulfill the job role and I believe I would be a great contribution to your team and company.
 
  # Skills:
 
