@@ -8,7 +8,7 @@
 
  # Contact Info: 
 
- I can be reached anytime via my **cell phone**, +355 29 522 7332 or by **email** at azazarova99@mail.ru
+ I can be reached anytime via my **cell phone**, +375 29 522 7332 or by **email** at azazarova99@mail.ru
 
  # Summary:
 
