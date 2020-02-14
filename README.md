@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Iamdii.github.io/rsschool-cv/cv
